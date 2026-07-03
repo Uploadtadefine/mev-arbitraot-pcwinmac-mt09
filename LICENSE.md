@@ -1,4 +1,4 @@
-# 
+# Leve MEV arbitrage bot extensões para Mac OS | Personalizado MEV arbitrage bot extensões para PC Windows. Com suporte multi-chain e detecção de novos tokens — otimizado para máximo desempeño en cada plataforma.
 
 
 
